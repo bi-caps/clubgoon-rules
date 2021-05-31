@@ -7,7 +7,7 @@ Discord rules list for clubgoon server.
 - #2. No rape, racism, bigotry, catfishing for profit, abuse (self or others), nonconsensual or illegal. Incest is allowed as long as it is consenting adults.
 - #3. No beastiality, snuff, torture, gore, vore, prolapse, scat, vomit, loli or shota. (illustrated or photographed)
 - #4. No fighting in the room, political/religious discussion, arguing with or blocking admins, or offensive trolling. Be kind and respectful to other users.
-- #5. *No leaking subscription-only material (for example OnlyFans/AVN).* No posting private chat logs or doxxing, this includes posting pictures of wives/girlfriends/friends/etc without their consent.
+- #5. *No leaking subscription-only material (for example OnlyFans/AVN).* No posting private chat logs or doxxing, this includes posting pictures of wives/girlfriends/friends/etc without their consent. Please keep private DMs private.
 - #6. All self shots pictures should be non-identifying and not posted anywhere else. #requests selfie posts are limited to post every 10 minutes.
 - #7. No links to external pages or servers that break any of the above rules.
 - #8. Please limit link/request spam to once per 10 minutes.
