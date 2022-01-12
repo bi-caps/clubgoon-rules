@@ -4,7 +4,7 @@ Discord rules list for clubgoon server.
 ## Rules
 
 - #1. No underage content or users. In all cases this means 18+. Underaged users will be banned if found, even if you are only roleplaying underage. Don't post questionable content, if it looks like it could be underage, we will assume it is. *﻿Discussion of teens and infantilization are likewise banned.﻿*
-- #2. No rape, racism, bigotry, low-effort findom, abuse (self or others), nonconsensual or illegal. Incest is allowed as long as it is consenting adults.
+- #2. No rape, racism, raceplay, bigotry, low-effort findom, abuse (self or others), nonconsensual or illegal. Incest is allowed as long as it is consenting adults.
 - #3. No beastiality, snuff, torture, gore, vore, prolapse, castration, scat, vomit, loli or shota. (illustrated or photographed)
 - #4. No fighting in the room, political/religious discussion, arguing with or blocking admins, or offensive trolling. Be kind and respectful to other users.
 - #5. *﻿No leaking subscription-only material (for example OnlyFans/AVN).﻿* No posting private chat logs or doxxing, this includes posting pictures of wives/girlfriends/friends/etc without their consent. Please keep private DMs private.
