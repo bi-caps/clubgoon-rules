@@ -12,8 +12,7 @@ Discord rules list for clubgoon server.
 - #7. No links to external pages or servers that break any of the above rules.
 - #8. Please limit link/request spam to once per 10 minutes. Unsolicited server invite DMs are not allowed.
 - #9. Please read and follow the guidelines for a given channel before posting to that channel. Crossposting between channels is prohibited.
-- #10. Posting invite links to other Discord servers should be done no more than once per day.
-- #11. goonchat﻿ is not requests﻿, please do not post advertisement in rooms other than requests﻿.
-- #12. This is not the place to find help for porn addiction. Seek out professional help if you have a problem.
+- #10. goonchat﻿﻿ is not requests﻿, please do not post advertisement in rooms other than requests﻿.
+- #11. This is not the place to find help for porn addiction. Seek out professional help if you have a problem.
 ﻿
-**﻿If you see any questionable content, please type @admin﻿ to notify the admin staff along with the nick of the person who posted it.﻿**
+**﻿If you see any questionable content, please type @admin﻿﻿ to notify the admin staff along with the nick of the person who posted it.﻿**
